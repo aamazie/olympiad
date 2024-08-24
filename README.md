@@ -1,0 +1,2 @@
+# olympiad
+text by *GLITCH
